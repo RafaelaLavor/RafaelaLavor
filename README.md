@@ -1,5 +1,5 @@
 - 👋 Oii, Eu sou a Rafaela Lavor
-- 👀 Estou interessada em Full Stack
+- 👀 Estou interessada em Desenvolvedora Back-end
 - 😊 Atualmente estou cursando Ánalise e desenvolvimento de sistemas
 - 😜 Pronome ela/dela
 - 🎉Tenho 19 anos
