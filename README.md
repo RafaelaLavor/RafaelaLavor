@@ -2,7 +2,7 @@
 - 👀 Estou interessada em Desenvolvedora Back-end
 - 😊 Atualmente estou cursando Ánalise e desenvolvimento de sistemas
 - 😜 Pronome ela/dela
-- 🎉Tenho 19 anos
+- 🎉Tenho 20 anos
 - ✌ De Manaus/AM
 
 
