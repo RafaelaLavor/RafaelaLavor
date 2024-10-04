@@ -1,7 +1,6 @@
 - 👋 Oii, Eu sou a Rafaela Lavor
 - 👀 Estou interessada em Desenvolvedora Back-end
 - 😊 Atualmente estou cursando Ánalise e desenvolvimento de sistemas
-- 😜 Pronome ela/dela
 - 🎉Tenho 20 anos
 - ✌ De Manaus/AM
 
