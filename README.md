@@ -1,7 +1,7 @@
 - 👋 Oii, Eu sou a Rafaela Lavor
-- 👀 Estou interessada em Desenvolvedora Back-end
+- 👀 Estou interessada em Analise de dados
 - 😊 Atualmente estou cursando Ánalise e desenvolvimento de sistemas
-- 🎉Tenho 20 anos
+- 🎉Tenho 21 anos
 - ✌ De Manaus/AM
 
 
